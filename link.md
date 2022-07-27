@@ -1,0 +1,1 @@
+Use this link for the website: https://rawcdn.githack.com/GottaGitthemscripts/New-repository/2fd985788a0dbf15355a58dfa8c9b1db3509772d/index.html
